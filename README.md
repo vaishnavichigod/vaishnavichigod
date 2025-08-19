@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 Passionate about learning new things.<br>🧠 Open to exploring ideas & projects.<br>👩🏻‍💻 Looking for a bright future
+🌱 Passionate about learning new things.<br>🧠 Open to exploring ideas & projects.<br>👩🏻‍💻 Looking for a bright future.
 
 
 ## 🌐 Socials:
